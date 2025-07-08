@@ -8,7 +8,7 @@
 
 点击访问：<a href="https://heiliaoyvnrda.pages.dev">黑料网独家爆料</a>
 
-点击访问：<a href="https://haef.pages.dev/>黑料-海角</a>
+点击访问：<a href="https://haef.pages.dev/">黑料-海角</a>
 
 点击访问：<a href="https://qfwfg.pages.dev/">黑料网-海角官方</a>
 
